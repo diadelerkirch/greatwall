@@ -15,3 +15,4 @@ The lack of work on the wall made it picturesque, but dangerous. “Every year, 
 On a sunny spring day towards the project’s end, I sat on the wall with Ma. We were surrounded by fortification-topped peaks as far as the eye could see. “You can see the mountains here. The machines can’t come here. We have to use people,” he told me. “But we should use technologies to help these people to do this work better.”
 
 For the 2019 phase of the project, that technology included drones, 3D mapping and a computer algorithm that could tell engineers whether they had to remove that tree or fix this crack – or whether they could safely leave them as they were, reminders of when the wall had once been wild.
+![Branching](
