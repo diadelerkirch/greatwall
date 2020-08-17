@@ -21,4 +21,10 @@ For the 2019 phase of the project, that technology included drones, 3D mapping a
 
 Lindesay has devoted his life to researching, writing about and fighting for conservation of the wall. Originally from England, Lindesay saw it on a map as a boy in 1967 and decided he had to explore it. In 1987, three years after a run of Hadrian’s Wall that inspired him to revive his childhood fascination, he walked the Great Wall on foot. He was the first foreigner to walk the Ming wall from end to end, an undertaking he did again, albeit by Jeep, in 2016. “It wasn’t this scenic footslog. I was stopped by the police nine times – you could call them arrests,” he told me. “I was eventually charged with repeated trespassing in closed areas and I was deported. So, I went to Hong Kong and [was later able to come back in]. I had the physical adventure, the political adventure – and I made three proposals of marriage to the same girl, so I had the romantic adventure.”
 He also fell in love with the Jiankou wall: the contrast of the grey fortifications against the green mountains; the trees growing through the bricks. He moved to the foot of Jiankou with his family in 1997 and coined the term “wild wall” to describe the difference between a spot like Jiankou and the reconstructed, touristed sections like Badaling. “The wild wall – and there are thousands of kilometres of it – actually constitutes the world’s greatest open-air museum,” he said.
-![Branching]
+![Branching](p08m61y0.jpg)
+
+No one seemed bothered by the two white signs with crisp red strokes that said, in Mandarin, “NO TOURISTS”. Technically, the wall isn’t officially “open” to the public, although no one can clarify exactly what that means, or explain why other signs aimed at tourists dot the hiking path.
+
+With the restoration finished, it’s likely that this tranquillity will change. The “NO TOURIST” signs probably will, too. There will be less fear of the wild wall. More and more people will come, not only the most intrepid.
+
+The wall may be less derelict and dangerous than it once was. But it remains a striking reminder of the centuries that shaped not only the fortification, but China itself. And its spirit, if a wall can have a spirit, still has whispers of wild.
