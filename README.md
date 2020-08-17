@@ -15,4 +15,10 @@ The lack of work on the wall made it picturesque, but dangerous. “Every year, 
 On a sunny spring day towards the project’s end, I sat on the wall with Ma. We were surrounded by fortification-topped peaks as far as the eye could see. “You can see the mountains here. The machines can’t come here. We have to use people,” he told me. “But we should use technologies to help these people to do this work better.”
 
 For the 2019 phase of the project, that technology included drones, 3D mapping and a computer algorithm that could tell engineers whether they had to remove that tree or fix this crack – or whether they could safely leave them as they were, reminders of when the wall had once been wild.
-![Branching](
+![Branching](ngfngng.jpg)
+
+“Just over the hill there are 20 million people,” said historian and conservationist William Lindesay, referring to Beijing. “So, the ‘leave nothing but footprints’ [advice] – even footprints can actually damage the wall.”
+
+Lindesay has devoted his life to researching, writing about and fighting for conservation of the wall. Originally from England, Lindesay saw it on a map as a boy in 1967 and decided he had to explore it. In 1987, three years after a run of Hadrian’s Wall that inspired him to revive his childhood fascination, he walked the Great Wall on foot. He was the first foreigner to walk the Ming wall from end to end, an undertaking he did again, albeit by Jeep, in 2016. “It wasn’t this scenic footslog. I was stopped by the police nine times – you could call them arrests,” he told me. “I was eventually charged with repeated trespassing in closed areas and I was deported. So, I went to Hong Kong and [was later able to come back in]. I had the physical adventure, the political adventure – and I made three proposals of marriage to the same girl, so I had the romantic adventure.”
+He also fell in love with the Jiankou wall: the contrast of the grey fortifications against the green mountains; the trees growing through the bricks. He moved to the foot of Jiankou with his family in 1997 and coined the term “wild wall” to describe the difference between a spot like Jiankou and the reconstructed, touristed sections like Badaling. “The wild wall – and there are thousands of kilometres of it – actually constitutes the world’s greatest open-air museum,” he said.
+![Branching]
